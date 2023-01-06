@@ -4,3 +4,8 @@
 ・カレー
 ・カツ丼
 ・ラーメン
+
+Laylaの好きなアニメ
+・Spyｘfamily
+・ハンターハンター
+・One Piece

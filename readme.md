@@ -9,3 +9,8 @@ Laylaの好きなアニメ
 ・Spyｘfamily
 ・ハンターハンター
 ・One Piece
+
+Noahの好きなゲーム
+・Splatoon 3
+・エピックリーグ
+・原神
